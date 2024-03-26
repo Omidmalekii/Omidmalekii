@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Omidmalekii
+- 👋 Hallo , Ich bin @Omidmalekii
 - 👀 ich intresssiere mich auf programming
 - 💞️ ich versuche eine Ausbildung um meine kenntnisse praktisch anwenden und erfahrung sammeln...
   
